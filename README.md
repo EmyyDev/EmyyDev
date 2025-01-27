@@ -6,7 +6,7 @@
 ## Sobre Mim🫰
 
 🔹Meus pronomes são: Ela/Dela<br>
-🔹Atualmente no 3° semestre do curso Tecnico de Desenvolvimento de Sistemas na Etec🤓<br>
+🔹Atualmente no 1° semestre do curso Tecnico de Desenvolvimento de Sistemas na Etec🤓<br>
 🔹Estou sempre buscando outros cursos para aumentar meu conhecimento, diria que sou uma pessoa curiosa que adora aprender😊<br>
 🔹Meus hobbies são: leitura📖, desenhar🎨 e jogar rpg de mesa🛡️
 
